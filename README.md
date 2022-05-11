@@ -1,1 +1,1 @@
-# stripinakvadrat.com
+#hi
